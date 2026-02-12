@@ -1,3 +1,4 @@
+```markdown
 # 🎉 Código de Descuento SHEIN – J73P8JK
 
 ¿Es tu primera vez comprando en SHEIN?  
@@ -29,6 +30,12 @@ SHEIN actualiza constantemente sus campañas con rebajas de temporada, flash sal
 ## 💡 Consejo
 
 Después de tu primera compra, podrás acceder a nuevas promociones y ofertas especiales dentro de la app, lo que te permitirá seguir ahorrando en futuros pedidos.
+
+---
+
+## 🔗 Accede aquí
+
+👉 **[Comprar en SHEIN ahora](https://onelink.shein.com/29/5fyebkj9otgd)**
 
 ---
 
